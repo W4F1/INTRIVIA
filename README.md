@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [4] Sejauh Ini 
 [Cluster 4 seru, kompak, dan penuh kebersamaan. Semoga ke depannya semakin solid dan bisa saling mendukung!] 
+
+## Harapan Kuliah 
+Semoga selama kuliah saya bisa mendapatkan banyak ilmu dan pengalaman baru, meraih prestasi, serta mengembangkan diri menjadi pribadi yang lebih baik
